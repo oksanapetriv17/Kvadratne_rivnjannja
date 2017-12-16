@@ -1,0 +1,1 @@
+# Kvadratne_rivnjannja
